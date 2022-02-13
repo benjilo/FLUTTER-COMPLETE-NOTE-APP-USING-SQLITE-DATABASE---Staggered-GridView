@@ -21,3 +21,4 @@ Hi Buddy, Boost your Tech Skills by joining our community.
 ** YOUTUBE TUTORIALS**
 
 Search TECH NOW TV on youtube to watch full video
+![hqdefault](https://user-images.githubusercontent.com/1903981/153771241-b8978aed-738f-4b7b-b7d1-fc4fdcc19db8.jpg)
